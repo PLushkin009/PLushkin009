@@ -17,7 +17,7 @@ We do **not** use third-party analytics or advertising tools.
 By using this app, you consent to this privacy policy.
 
 ## 5. Contact Us
-If you have any questions about this policy, please contact us at plushkin009@gmail.com.
+If you have any questions about this policy, please contact us at stoogess007@gmail.com.
 
 ---
 This policy may be updated occasionally. Last updated: April 12, 2025.
